@@ -1,0 +1,2 @@
+# Donate-1-dollar-to-Save-the-Children-around-the-whole-wide-world-skylight-Records-Radio-
+Please donate ( One Dollar to Save The Children) so each childay get food,water,clothes, medication,an a safe home to live at with showers an a warm bed to sleep in ( Please so we can get the work started to.SAVE these children men an women who are starving ,wan so we can get Allure to them also to purify there water,
